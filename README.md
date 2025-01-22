@@ -1,1 +1,1 @@
-# 28.-28.Renovacion-del-casco-antiguo
+# 28. Renovacion-del-casco-antiguo
